@@ -1,1 +1,0 @@
-# jhordyhuaman.github.io
